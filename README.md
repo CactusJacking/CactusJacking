@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CactusJacking
 - 👀 I’m interested in finding proxy serves and fan pokemon games (like Unbound and Uranium)
-- 🌱 I’m currently learning how to use GutHUb
+- 🌱 I’m currently learning how to use GitHub
 - 😄 Pronouns: He/HIm
 - ⚡ Fun fact: i luv travis sccott
 
